@@ -35,6 +35,8 @@ Aan ‘t kruis
 Nederweert-Eind  
 Limburg
 
+[Google Maps](https://www.google.com/maps/place/Aan+Het+Kruis,+6034+RE+Nederweert-Eind/@51.301618,5.8349141,17z/data=!3m1!4b1!4m6!3m5!1s0x47c736b97fbc7ba7:0xb33f9f46e89b98f1!8m2!3d51.301618!4d5.837489!16s%2Fg%2F1tdbvzwl?entry=ttu)
+
 Mocht je een plekje in de auto over hebben of geen auto hebben: [carpool spreadsheet](https://docs.google.com/spreadsheets/d/1JhqHAnm41qI6lgueXx3M6gZy_8LsWGU6fJMUSpmRY18/edit?usp=sharing).
 
 ## Kinderen
