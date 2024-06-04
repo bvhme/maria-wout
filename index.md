@@ -1,10 +1,15 @@
+---
+title: thuispagina
+layout: default
+---
+
 # Maria & Wout
 
 ## RSVP
 
 [RSVP](https://forms.gle/tTry9xi3d42vdYxR9)
 
-# Programma
+## Programma
 
 * Vanaf 11:00 - parkeren, ontvangst, overhemd strijken, make-up goed doen
 * 12:00 - Taart
