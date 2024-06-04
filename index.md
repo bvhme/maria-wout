@@ -35,7 +35,7 @@ Aan ‘t kruis
 Nederweert-Eind  
 Limburg
 
-Meer informatie over hoe je er komt en de carpool-spreadsheet komen hier.
+Mocht je een plekje in de auto over hebben of geen auto hebben: [carpool spreadsheet](https://docs.google.com/spreadsheets/d/1JhqHAnm41qI6lgueXx3M6gZy_8LsWGU6fJMUSpmRY18/edit?usp=sharing).
 
 ## Kinderen
 
