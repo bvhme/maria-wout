@@ -56,3 +56,29 @@ NL32 ABNA 0130 3906 82 ten name van FW de Lange
 Heb je een brandende vraag, of wil je een speech, een voorstelling, een performance en een cursus geven op deze mooie dag, of heb je een ander leuk idee?
 
 Neem dan contact op met Francien de Lange en Boris van Hoytema op <ceremoniemeesters@maria-wout.nl>
+
+## Questions
+
+If you would like to contribute to the events, or if you have a burning question, please contact Francien and Boris <ceremoniemeesters@maria-wout.nl>.
+
+## How do you get there?
+
+Nearest train station: Weert (30 minutes)
+
+By car:
+
+Aan Het Kruis 2
+
+Parking:
+
+Zoomdijk
+
+It is approximately a 1 hour and 50 minute drive from Amsterdam.
+
+Would you like to go by car, but you don't have a car? Do you have a car and an extra spot? Let us know in the RSVP! Then we can start a small carpooling service.
+
+## Guests from abroad:
+
+If you are traveling from abroad and need a place to sleep, the day before or after, please contact Francien and Boris at: ceremoniemeesters@maria-wout.nl.
+
+There are a couple of rooms, beds and mattresses available. If possible, please bring some sheets and/or a sleeping bag.
