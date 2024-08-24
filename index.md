@@ -77,6 +77,8 @@ Zoomdijk
 
 It is approximately a 1 hour and 50 minute drive from Amsterdam.
 
+You can also take a taxi from train station Weert.
+
 Would you like to go by car, but you don't have a car? Do you have a car and an extra spot? Let us know in the RSVP! Then we can start a small carpooling service.
 
 ## Guests from abroad:
