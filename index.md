@@ -30,7 +30,7 @@ Muggenspray, zonnebrand, hooikoortsmedicatie en een trui.
 
 ## Locatie
 
-Aan ‘t kruis  
+Aan ‘t kruis 3
 6034RE  
 Nederweert-Eind  
 Limburg
@@ -69,11 +69,7 @@ Nearest train station: Weert (30 minutes)
 
 By car:
 
-Aan Het Kruis 2
-
-Parking:
-
-Zoomdijk
+Aan 't Kruis 3
 
 It is approximately a 1 hour and 50 minute drive from Amsterdam.
 
