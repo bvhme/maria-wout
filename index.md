@@ -35,7 +35,7 @@ Aan ‘t kruis 3
 Nederweert-Eind  
 Limburg
 
-[Google Maps](https://www.google.com/maps/place/Aan+Het+Kruis,+6034+RE+Nederweert-Eind/@51.301618,5.8349141,17z/data=!3m1!4b1!4m6!3m5!1s0x47c736b97fbc7ba7:0xb33f9f46e89b98f1!8m2!3d51.301618!4d5.837489!16s%2Fg%2F1tdbvzwl?entry=ttu)
+[Google Maps](https://www.google.com/maps/place/Aan+Het+Kruis+3,+6034+RE+Nederweert-Eind/@51.2994829,5.8345853,17z/data=!4m6!3m5!1s0x47c736ba651a150f:0x858fd1c7808b38d3!8m2!3d51.2994829!4d5.8345853!16s%2Fg%2F11hgjyxjj1)
 
 Je kan ook met de taxi vanaf station Weert.
 
