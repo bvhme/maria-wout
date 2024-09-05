@@ -30,7 +30,7 @@ Muggenspray, zonnebrand, hooikoortsmedicatie en een trui.
 
 ## Locatie
 
-Aan ‘t kruis 3
+Aan ‘t kruis 3  
 6034RE  
 Nederweert-Eind  
 Limburg
