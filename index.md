@@ -5,6 +5,8 @@ layout: default
 
 # Maria & Wout
 
+7 september.
+
 ## RSVP
 
 [RSVP](https://forms.gle/tTry9xi3d42vdYxR9)
